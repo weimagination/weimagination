@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @weimagination
+- 👀 I’m interested in art and design.
+- 🌱 I’m currently working on my second children's illustration book.
+- 😃 I love to create colorful artwork with a touch of humor.
+- 😊 I'm learning how to put my artwork into NFTs.
+- 😎 Cheer!
